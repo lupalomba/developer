@@ -1,1 +1,1 @@
-Luca Palomba2 will be editing this repository as well.
+Max Hausdorf and Benjamin Zahn will be editing this repository as well.
